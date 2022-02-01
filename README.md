@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ubathebee
+- 👋 Hi, I’m @ubathebee (a Pharmacist)
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate with anyone willing to guide me
